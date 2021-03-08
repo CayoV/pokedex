@@ -15,3 +15,9 @@ Charizard voa pelo céu à procura de oponentes poderosos. Aspira fogo de temper
 Anterior: #005  Charmeleon
 
 Próxima: Não tem
+
+##### - MEGAEVOLUÇÃO -
+
+???????
+
+???????
